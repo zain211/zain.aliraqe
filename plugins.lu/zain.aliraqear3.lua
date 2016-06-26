@@ -2,7 +2,7 @@
 ▀▄ ▄▀▀▄▄▀▀▄▄▀▀▄▄▀▀▄▄▀▀▄▄▀▀▄▄▀▀▄▀▄▄▀▀▄▄▀▀▄▄▀▀▄▄▀▀          
 ▀▄ ▄▀                                      ▀▄ ▄▀ 
 ▀▄ ▄▀    BY SAJJAD NOORI                   ▀▄ ▄▀ 
-▀▄ ▄▀     BY SAJAD NOORI (@SAJJADNOORI)    ▀▄ ▄▀ 
+▀▄ ▄▀     BY SAJAD NOORI (@zzaa6)          ▀▄ ▄▀ 
 ▀▄ ▄▀ JUST WRITED BY SAJJAD NOORI          ▀▄ ▄▀   
 ▀▄ ▄▀          dev1  : dev                 ▀▄ ▄▀ 
 ▀▄▀▀▄▄▀▀▄▄▀▄▄▀▀▄▄▀▀▄▄▀▄▄▀▀▄▄▀▀▄▄▀▄▄▀▀▄▄▀▀▄▄▀▄▄▀▀
